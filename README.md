@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Adnilson Asobrab3099 😁
+## Bem-vindo(a) ao perfil do Adnilson Asobrab3099
 
  <div>
    <a href="https://github.com/adnilson-asobrab3099">
